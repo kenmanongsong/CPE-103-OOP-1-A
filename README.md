@@ -1,4 +1,5 @@
-## Hi Ken! These are your programs! 😍![DancingCatDanceGIF](https://github.com/user-attachments/assets/46d1f30f-b736-4923-8614-61799cac0188)
+## Hi There! These are my programs! 😍![MyDressUpDarlingAnimeSmileGIF](https://github.com/user-attachments/assets/e22059f2-c9f6-4221-b52c-807aac200379)
+
 
 
 
