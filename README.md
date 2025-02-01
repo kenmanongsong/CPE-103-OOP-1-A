@@ -1,5 +1,5 @@
-## Hi Ken! These are your programs! 😍
-![MuaKissGIF](https://github.com/user-attachments/assets/8b30db39-9e89-4267-a2cf-95ebf1894630)
+## Hi Ken! These are your programs! 😍![SpinningSpiningCatGIF](https://github.com/user-attachments/assets/29014e0d-4b32-497f-9ead-02cc17077754)
+
 
 <!--
 **kenmanongsong/kenmanongsong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
