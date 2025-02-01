@@ -1,4 +1,5 @@
-## Hi Ken! These are your programs! 😍![SpinningSpiningCatGIF](https://github.com/user-attachments/assets/29014e0d-4b32-497f-9ead-02cc17077754)
+## Hi Ken! These are your programs! 😍![DancingCatDanceGIF](https://github.com/user-attachments/assets/46d1f30f-b736-4923-8614-61799cac0188)
+
 
 
 <!--
