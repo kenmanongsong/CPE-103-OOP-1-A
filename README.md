@@ -1,4 +1,4 @@
-## Hi Ken! These are your programs! 👋
+## Hi Ken! These are your programs! 😍
 
 <!--
 **kenmanongsong/kenmanongsong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
