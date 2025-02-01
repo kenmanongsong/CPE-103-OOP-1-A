@@ -1,4 +1,4 @@
-## Hi There! These are my programs! 😍![MyDressUpDarlingAnimeSmileGIF](https://github.com/user-attachments/assets/e22059f2-c9f6-4221-b52c-807aac200379)
+## Hi There! These are my programs! 😍
 
 
 
